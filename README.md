@@ -9,4 +9,5 @@ i dabble on here time2time
 - contributed to over 500 thousand visits on ROBLOX
 
   this is just some of my biggest projects, i have hundreds of other smaller projects that aren't listed.
-  reach out to me @ **.darkamuor**
+  reach out to me on discord @ **.darkarmor**
+  ^ extremely inactive and probably won't reply
